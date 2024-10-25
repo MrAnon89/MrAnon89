@@ -9,7 +9,7 @@
 
 ###
 
-<div class="tenor-gif-embed" data-postid="25189856" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/silvervale-buffer-anime-thinking-anime-huh-huh-anime-thinking-anime-gif-25189856">Silvervale Buffer Anime Thinking GIF</a>from <a href="https://tenor.com/search/silvervale+buffer-gifs">Silvervale Buffer GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+<img align="right" height="150" src="https://media1.tenor.com/m/K3LslQdLo04AAAAC/inugami-korone-hololive.gif"/>
 
 ###
 
