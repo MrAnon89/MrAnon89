@@ -9,7 +9,7 @@
 
 ###
 
-<img align="right" height="150" src="https://tenor.com/view/silvervale-buffer-anime-thinking-anime-huh-huh-anime-thinking-anime-gif-25189856"  />
+<img align="right" height="150" src="https://tenor.com/embed.js"  />
 
 ###
 
